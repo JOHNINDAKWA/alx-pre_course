@@ -1,1 +1,1 @@
-Collaboration with co-workers
+Collaboration with co-workers.
